@@ -1,0 +1,2 @@
+# EXAMEN-MEDIOCURSO
+dice code
